@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... expanding my work experience
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... [Email]
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ... He/Him
+- ⚡ Fun fact: ... I love making music
 -->
